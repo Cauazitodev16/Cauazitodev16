@@ -12,5 +12,6 @@ Gosto bastante de jogar em tempo livre, seja jogos de estratégia, ação, avent
 
 Não me pergunte o por que a minha foto de perfil é o eggman, é porque, <ins>seguindo a lógica, ele cria robôs, então provavelmente ele entende de programação, se for considerar essa lógica... então a foto de perfil faz sentido...<ins>
 
+<img src="SHADOW.png">
 
 
