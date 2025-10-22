@@ -1,7 +1,7 @@
 ## Hello there
 **STAR WARS REFERENCE OHHHHH MYYY GODDDD!!!**
 
-Meu nome é Cauã, **tenho 16 anos**, sou do **2°ano do ensino médio no** <ins>SESI-402 Vila das Mercês<ins> mas também faço curso de **Análise e desenvolvimento de sistemas (TI)** no <ins>SENAI Conde José Vicente de Azevedo (Ipiranga)<ins> 
+Meu nome é Cauã, **tenho 17 anos**, sou do **2°ano do ensino médio no** <ins>SESI-402 Vila das Mercês<ins> mas também faço curso de **Análise e desenvolvimento de sistemas (TI)** no <ins>SENAI Conde José Vicente de Azevedo (Ipiranga)<ins> 
 
 Não tenho irmãos....     ~~Amém kkkk~~
 
